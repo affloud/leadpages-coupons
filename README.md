@@ -1,4 +1,4 @@
-# Leadpages Coupon Codes 2025 (Upto 65% Discount & Offers)
+# Leadpages Coupon Codes 2025 (Upto 65% Discount)
 
 Leadpages is a powerful landing page builder and website creation platform designed to help businesses convert website visitors into leads and customers. 
 
