@@ -42,7 +42,7 @@ With Leadpages, users can build entire websites, create targeted landing pages f
 <img src="https://drive.google.com/uc?export=view&id=1copskY16kdQsj1TlHODpmoNLyVieWffZ" alt="Take a Closer Look"> 
 </a>
 
-## Leadpages Features
+## Leadpages Features 2025
 
 Leadpages offers a comprehensive suite of features designed to help businesses maximize their online presence and lead generation capabilities:
 
